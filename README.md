@@ -1,1 +1,1 @@
-### Supplemental Files for earning Tree course 1267
+### Supplemental Files for Learning Tree course 1267
